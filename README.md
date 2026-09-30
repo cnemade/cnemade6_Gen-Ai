@@ -1,1 +1,0 @@
-# cnemade6_Gen-Ai
